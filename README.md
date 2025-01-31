@@ -1,4 +1,4 @@
-# Salutations! I am Arcanist / Shade 🔥
+# ✨ Salutations! I am Arcanist / Shade 🔥
 * Gender: Agender
 * Pronouns: **They/Them** 
 * Working for: **ArcanistAI** / **Rockport**
